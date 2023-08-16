@@ -1,5 +1,4 @@
-﻿
-![](Aspose.Words.6d74dbc2-3aae-487b-b6f0-12c55b8c781e.001.jpeg)
+﻿![](Aspose.Words.6d74dbc2-3aae-487b-b6f0-12c55b8c781e.001.jpeg)
 
 
 
